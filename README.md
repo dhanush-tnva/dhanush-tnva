@@ -1,2 +1,2 @@
-## Hi there, My name is Dhanush Suvarna 👋👋👋👋
+## Hi there, My name is Dhanush Suvarna
 
